@@ -1,1 +1,1 @@
-Hi Everyone! I'm Akbarezqy! I Study at SMP 3! 
+Hi Everyone! I'm Akbarezqy! 
